@@ -1,1 +1,1 @@
-### Bonjour à toi ! 👋
+### Bonjour toi ! 👋
